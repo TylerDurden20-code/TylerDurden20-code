@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://pin.it/30cTpeD6d" width="100%" />
+<img src="https://cdn.phototourl.com/free/2026-07-14-272e32a2-32b6-4ee6-be61-a10c8554ac10.gif" width="100%" />
 
 # Hi there! 👋
 
